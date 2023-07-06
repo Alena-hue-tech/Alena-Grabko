@@ -1,4 +1,4 @@
-## Алена Грабко
+!(https://disk.yandex.ru/i/npOVIeKRubrObg) ## Алена Грабко
 тел. +7 926 267-14-47
 Tg: @Alenaideti89
 # Тестировщик ПО
