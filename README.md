@@ -1,5 +1,5 @@
 ## Алена Грабко
-![главная фотография](https://disk.yandex.ru/i/npOVIeKRubrObg)
+![главная фотография](C:\Users\Admin\Desktop\Вика)
 тел. +7 926 267-14-47
 Tg: @Alenaideti89
 # Тестировщик ПО
